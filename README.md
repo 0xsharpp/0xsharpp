@@ -1,10 +1,10 @@
-# Hi, I'm 0x$harp_
+# Pray with me
 
 [![@liebe182 board](https://i.pinimg.com/1200x/15/0c/bd/150cbdc59acafa449059869d51668967.jpg)](https://github.com/liebe182)
 
 ## { about_me }
 
-13 year old from philippines
+I am 13 year old
 
 ## { spotify_playing }
 
