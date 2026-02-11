@@ -4,7 +4,7 @@
 
 ## { about_me }
 
-I am 13 year old
+Nigga
 
 ## { spotify_playing }
 
